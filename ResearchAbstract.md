@@ -1,2 +1,7 @@
 - ["Animal Agriculture's Impact on Climate Change"](https://climatenexus.org/climate-issues/food/animal-agricultures-impact-on-climate-change/)
+- [Food and Agriculture Organization of the United Nations](http://www.fao.org/faostat/en/#home)
+- ["Beef Replacement Plant-Based Diets"](https://pubs.acs.org/doi/abs/10.1021/acs.est.6b01006)
+- [Solutions from the Land](https://www.sfldialogue.net)
+- [NBC: Being a Part-Time Vegan](https://www.nbcnews.com/better/health/why-mark-bittman-wants-you-be-part-time-vegan-ncna889916)
+- [EPA Greenhouse Gas Emissions](https://www.epa.gov/ghgemissions/inventory-us-greenhouse-gas-emissions-and-sinks)
 -
