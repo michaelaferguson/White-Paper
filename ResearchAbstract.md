@@ -4,4 +4,8 @@
 - [Solutions from the Land](https://www.sfldialogue.net)
 - [NBC: Being a Part-Time Vegan](https://www.nbcnews.com/better/health/why-mark-bittman-wants-you-be-part-time-vegan-ncna889916)
 - [EPA Greenhouse Gas Emissions](https://www.epa.gov/ghgemissions/inventory-us-greenhouse-gas-emissions-and-sinks)
--
+- ["Is Meat Sustainable?"](http://www.worldwatch.org/node/549) 
+- [Blog Post from a former vegetarian](https://www.greenpeace.org.au/blog/sustainable-meat-eating/)
+- [Sustainable Diets with charts] (https://www.wri.org/blog/2016/04/sustainable-diets-what-you-need-know-12-charts)
+- [Regenerative Agriculutre] (https://www.forbes.com/sites/neilyeoh/2018/04/14/going-vegan-eating-sustainable-beef-can-be-good-for-the-environment/#a91d34567eab)
+
