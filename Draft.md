@@ -20,7 +20,9 @@ In the United States specifically, a majority of meat and dairy products sold co
 *will include graphics and stats*
 
 **The alternative option**
+
 *info on how to eat meat sustainably, by supporting small & local grass-fed farms. Will reference specific farms in the Northern Colorado area.*
 
 **Conclusion**
+
 *call to action; you don't have to be vegetarian to make an impact, but being more conscious of your consumption is huge*
