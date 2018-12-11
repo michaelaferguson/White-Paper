@@ -1,4 +1,5 @@
-*(I'm writing on behalf of the family business)*
+
+*This is a very rough draft..Mostly just an outline. Some things I'm concerned about: I don't fully know how to address the audience. Since I'm writing on behalf of the family business also seen from the blog project, I envision our customers, supporters, and the people in the local community would be the ones reading this so I need to work on addressing them. Also, does my call to action need to be bigger than my suggestion to eat meat sustainably?*
 
 **Intro**
 
