@@ -17,7 +17,8 @@ In the United States specifically, a majority of meat and dairy products sold co
 **Stats on greenhouse gases**
 
 “When all of its impacts are added together, from clearing land to growing feed with fertilizer and managing manure, the global livestock industry generates more greenhouse gases than the transportation sector of the economy.” (CQ Researcher)
-*will include graphics and stats*
+
+*will include several graphics and stats here*
 
 **The alternative option**
 
