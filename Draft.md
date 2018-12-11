@@ -1,4 +1,5 @@
 *(I'm writing on behalf of the family business)*
+
 *Intro*
 
 As a part of the outdoor industry, the state of the environment is important to us. We consider ourselves amateur environmentalists and do our part locally in hopes to make impacts globally. Over the years, a change we’ve made as a family and team is our meat consumption. Some have gone vegetarian, others stopped eating meat that comes from factory farms because of the environmental hazards they can create. 
@@ -11,6 +12,7 @@ The topic of meat consumption can be a controversial one, and we are not looking
 
 
 *Some history*
+
 In the United States specifically, a majority of meat and dairy products sold come from factory farms, also known as CAFOs (Concentrated Animal Feeding Operations). The end of World War II shifted livestock coming from small, family owned farms to a larger production due to the technological boom in agriculture machinery. From there, it has grown exponentially. The production of meat from cattle alone in 2010 was 12 million – double the amount of the next highest producer worldwide, China. (FAO)
 
 
